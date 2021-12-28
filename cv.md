@@ -17,3 +17,11 @@
 ## Education
 * **Bachelor, Belarusian State Economic University**
     + Faculty of Management
+    ## Experience
+* Video producer (Since 2013)
+## Languages
+* Russian
+* English
+* Polish
+## English
+* EPAM Examinator: Adaptive English test 2020 (B2).
